@@ -23,3 +23,4 @@
 * [Dogs in space](http://blog.nuclearsecrecy.com/2015/06/26/dogs-in-space/)
 * [Elon Musk, Visioneer?](http://www.patrickmccray.com/2015/05/15/elon-musk-visioneer/)
 * [Japanese Startup Wants to Create Man-Made Meteor Showers](http://www.iflscience.com/space/japanese-startup-wants-create-man-made-meteor-showers)
+* [Seven Soviet sci-fi films everyone should see](http://www.theguardian.com/world/2015/apr/28/cinema-seven-soviet-sci-fi-films)
