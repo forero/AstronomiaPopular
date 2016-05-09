@@ -25,3 +25,4 @@
 * [Japanese Startup Wants to Create Man-Made Meteor Showers](http://www.iflscience.com/space/japanese-startup-wants-create-man-made-meteor-showers)
 * [Seven Soviet sci-fi films everyone should see](http://www.theguardian.com/world/2015/apr/28/cinema-seven-soviet-sci-fi-films)
 * [Avant "Le voyage cosmique"](http://project.mettavant.fr/kosmicpredecess.htm)
+* [Tonterias astronomicas y religion en TV Colombiana](https://www.youtube.com/watch?v=jTuQQDbYqfE)
