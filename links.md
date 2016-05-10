@@ -27,3 +27,4 @@
 * [Avant "Le voyage cosmique"](http://project.mettavant.fr/kosmicpredecess.htm)
 * [Tonterias astronomicas y religion en TV Colombiana](https://www.youtube.com/watch?v=jTuQQDbYqfE)
 * [Observatorios abandonados](http://io9.gizmodo.com/abandoned-space-observatories-are-monuments-to-science-1479519920)
+* [Afrofuturism: where space, pyramids and politics collide](https://www.theguardian.com/science/political-science/2014/jan/07/afrofuturism-where-space-pyramids-and-politics-collide)
