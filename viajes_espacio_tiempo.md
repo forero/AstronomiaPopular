@@ -13,7 +13,7 @@ Corto del documental DUNE (2min) https://www.youtube.com/watch?v=jg4OCeSTL08
 
 ## Kubrick
 2001 Descubren las herramientas (4min) https://www.youtube.com/watch?v=ypEaGQb6dJk  
-2001 Monolito en la luna (4min) https://www.youtube.com/watch?v=oU4Rk0NATNs 
+2001 Monolito en la luna (4min) https://www.youtube.com/watch?v=oU4Rk0NATNs  
 2001 Final (10min) 14:20 https://youtu.be/f88NZ1sxWX0?t=14m20s  
 
 ## Ciencia ficcion americana (viajes y escape)
