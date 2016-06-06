@@ -32,3 +32,5 @@
 * [U.F.O.s: What Does the Government Know? -NYTIMES](http://www.nytimes.com/video/us/politics/100000004381919/ufos-what-does-the-government-know.html)
 * [Mystik and Technik: Arnold Sommerfeld and Early-Weimar Quantum Theory," Berichte zue Wissenschaftsgeschichte (2008) (31): 331-352.](http://sts.cornell.edu/people/ss536.cfm)
 * [Moda astronomica](http://www.mymodernmet.com/profiles/blogs/valentino-space-inspired-pre-fall-2015-collection)
+
+* [History Manifesto](http://historymanifesto.cambridge.org/) This provocative and thoughtful book makes an important intervention in the debate about the role of history and the humanities in a digital age. It will provoke discussion among policymakers, activists and entrepreneurs as well as ordinary listeners, viewers, readers, students and teachers.  
