@@ -32,5 +32,9 @@
 * [U.F.O.s: What Does the Government Know? -NYTIMES](http://www.nytimes.com/video/us/politics/100000004381919/ufos-what-does-the-government-know.html)
 * [Mystik and Technik: Arnold Sommerfeld and Early-Weimar Quantum Theory," Berichte zue Wissenschaftsgeschichte (2008) (31): 331-352.](http://sts.cornell.edu/people/ss536.cfm)
 * [Moda astronomica](http://www.mymodernmet.com/profiles/blogs/valentino-space-inspired-pre-fall-2015-collection)
+* [What Else Is New? How uses, not innovations, drive human technology.](http://www.newyorker.com/magazine/2007/05/14/what-else-is-new)
+* [Texas Congressman Says US Should Not Make Gay Space Colonies](http://motherboard.vice.com/read/texas-congressman-louie-gohmert-says-us-should-not-make-gay-space-colonies)
 
 * [History Manifesto](http://historymanifesto.cambridge.org/) This provocative and thoughtful book makes an important intervention in the debate about the role of history and the humanities in a digital age. It will provoke discussion among policymakers, activists and entrepreneurs as well as ordinary listeners, viewers, readers, students and teachers.  
+
+* [Isis issue on the History Manifesto](http://www.journals.uchicago.edu/toc/isis/2016/107/2)
