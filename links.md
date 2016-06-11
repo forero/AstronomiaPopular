@@ -37,4 +37,7 @@
 
 * [History Manifesto](http://historymanifesto.cambridge.org/) This provocative and thoughtful book makes an important intervention in the debate about the role of history and the humanities in a digital age. It will provoke discussion among policymakers, activists and entrepreneurs as well as ordinary listeners, viewers, readers, students and teachers.  
 
-* [Isis issue on the History Manifesto](http://www.journals.uchicago.edu/toc/isis/2016/107/2)
+* [Isis issue on the History Manifesto](http://www.journals.uchicago.edu/toc/isis/2016/107/2)  
+
+* [The mistrust of science](http://www.newyorker.com/news/news-desk/the-mistrust-of-science)  
+
