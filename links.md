@@ -39,5 +39,5 @@
 
 * [Isis issue on the History Manifesto](http://www.journals.uchicago.edu/toc/isis/2016/107/2)  
 
-* [The mistrust of science](http://www.newyorker.com/news/news-desk/the-mistrust-of-science)  
+* [The mistrust of science](http://www.newyorker.com/news/news-desk/the-mistrust-of-science)  ommencement address at the California Institute of Technology, on Friday, June 10th.
 
