@@ -39,5 +39,6 @@
 
 * [Isis issue on the History Manifesto](http://www.journals.uchicago.edu/toc/isis/2016/107/2)  
 
-* [The mistrust of science](http://www.newyorker.com/news/news-desk/the-mistrust-of-science)  ommencement address at the California Institute of Technology, on Friday, June 10th.
+* [The mistrust of science](http://www.newyorker.com/news/news-desk/the-mistrust-of-science)  ommencement address at the California Institute of Technology, on Friday, June 10th.  
+* [Next Society – Facing Gaïa: Frédérique Aït-Touati Reset vs. Revolution: How could we escape from the modernist metaphors of new beginnings?] (http://zkm.de/en/media/video/next-society-facing-gaia-frederique-ait-touati)  
 
