@@ -42,3 +42,5 @@
 * [The mistrust of science](http://www.newyorker.com/news/news-desk/the-mistrust-of-science)  ommencement address at the California Institute of Technology, on Friday, June 10th.  
 * [Next Society – Facing Gaïa: Frédérique Aït-Touati Reset vs. Revolution: How could we escape from the modernist metaphors of new beginnings?] (http://zkm.de/en/media/video/next-society-facing-gaia-frederique-ait-touati)  
 
+* [azuma makoto sends 50 year old bonzai tree into space for exobiotanica project](http://www.designboom.com/art/azuma-makoto-exobiotanica-project-bonsai-tree-07-21-2014/)
+
