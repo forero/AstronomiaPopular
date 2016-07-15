@@ -44,3 +44,7 @@
 
 * [azuma makoto sends 50 year old bonzai tree into space for exobiotanica project](http://www.designboom.com/art/azuma-makoto-exobiotanica-project-bonsai-tree-07-21-2014/)
 
+* [Eternal light, up for grabs - Astrophysicist warns of treaty loophole](http://news.harvard.edu/gazette/story/2016/07/eternal-light-up-for-grabs/)
+
+* [The 7 biggest problems facing science, according to 270 scientists](http://www.vox.com/2016/7/14/12016710/science-challeges-research-funding-peer-review-process)
+
