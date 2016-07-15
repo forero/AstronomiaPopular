@@ -48,4 +48,4 @@
 
 * [The 7 biggest problems facing science, according to 270 scientists](http://www.vox.com/2016/7/14/12016710/science-challeges-research-funding-peer-review-process)
 
-* [Oxford Handbook of Philosophy of PHysics](https://global.oup.com/academic/product/the-oxford-handbook-of-philosophy-of-physics-9780195392043?cc=us&lang=en&)
+* [Oxford Handbook of Philosophy of PHysics](http://www.physicalism.com/physics.pdf)
