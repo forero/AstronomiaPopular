@@ -49,3 +49,5 @@
 * [The 7 biggest problems facing science, according to 270 scientists](http://www.vox.com/2016/7/14/12016710/science-challeges-research-funding-peer-review-process)
 
 * [Oxford Handbook of Philosophy of PHysics](http://www.physicalism.com/physics.pdf)
+
+* [Dear "Skeptics," Bash Homeopathy and Bigfoot Less, Mammograms and War More A science journalist takes a skeptical look at capital-S Skepticism](http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/)  
