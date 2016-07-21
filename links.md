@@ -51,3 +51,5 @@
 * [Oxford Handbook of Philosophy of PHysics](http://www.physicalism.com/physics.pdf)
 
 * [Dear "Skeptics," Bash Homeopathy and Bigfoot Less, Mammograms and War More A science journalist takes a skeptical look at capital-S Skepticism](http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/)  
+
+* [Resumen de vida y obra de Latour hasta 1994](http://linguafranca.mirror.theinfo.org/9410/latour.html)  
