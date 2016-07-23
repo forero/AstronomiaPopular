@@ -53,3 +53,7 @@
 * [Dear "Skeptics," Bash Homeopathy and Bigfoot Less, Mammograms and War More A science journalist takes a skeptical look at capital-S Skepticism](http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/)  
 
 * [Resumen de vida y obra de Latour hasta 1994](http://linguafranca.mirror.theinfo.org/9410/latour.html)  
+
+* [A Debate Over the Physics of Time](https://www.quantamagazine.org/20160719-time-and-cosmology/)
+
+* [Identification of a Gravitational Arrow of Time](https://physics.aps.org/featured-article-pdf/10.1103/PhysRevLett.113.181101)  
