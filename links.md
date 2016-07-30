@@ -57,3 +57,6 @@
 * [A Debate Over the Physics of Time](https://www.quantamagazine.org/20160719-time-and-cosmology/)
 
 * [Identification of a Gravitational Arrow of Time](https://physics.aps.org/featured-article-pdf/10.1103/PhysRevLett.113.181101)  
+
+*[This Physics Pioneer Walked Away from It All
+Why Fotini Markopoulou traded quantum gravity for industrial design.](http://nautil.us/issue/38/noise/this-physics-pioneer-walked-away-from-it-all)
