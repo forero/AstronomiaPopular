@@ -63,3 +63,7 @@
 * [Relics of the Space Age](http://www.nytimes.com/interactive/2016/03/01/science/space/space-junk-photographs.html?_r=1)  
 
 * [Space Ghost Towns](http://www.thekindland.com/roland-miller-s-space-race-ghost-towns-1033)
+
+* [The Sculpture on the Moon](http://www.slate.com/articles/health_and_science/science/2013/12/sculpture_on_the_moon_paul_van_hoeydonck_s_fallen_astronaut.html)
+
+* [We Should Not Accept Scientific Results That Have Not Been Repeated](http://nautil.us/blog/we-should-not-accept-scientific-results-that-have-not-been-repeated)
