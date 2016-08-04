@@ -67,3 +67,5 @@
 * [The Sculpture on the Moon](http://www.slate.com/articles/health_and_science/science/2013/12/sculpture_on_the_moon_paul_van_hoeydonck_s_fallen_astronaut.html)
 
 * [We Should Not Accept Scientific Results That Have Not Been Repeated](http://nautil.us/blog/we-should-not-accept-scientific-results-that-have-not-been-repeated)
+
+* [See Before-and-After Photos of the Changing Environment](http://news.nationalgeographic.com/2015/12/151229-before-after-earth-features/)
