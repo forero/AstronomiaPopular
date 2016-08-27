@@ -7,3 +7,5 @@
 * [Stern-Gerlach Experiment](https://www.youtube.com/watch?v=rg4Fnag4V-E)  
 * [Quantum interference](https://www.youtube.com/watch?v=Xmq_FJd1oUQ)  
 * [Efecto Tunel](https://www.youtube.com/watch?v=DC0U5viudt0)  
+
+* [How the hippies saved physics - photos](http://www.hippiessavedphysics.com/photos/)  
