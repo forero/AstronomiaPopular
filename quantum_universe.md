@@ -1,4 +1,5 @@
-* [Quantum Encription Satellite](http://bigthink.com/robby-berman/china-has-just-launched-the-worlds-first-quantum-satellite)  
+* [Quantum Encription Satellite](http://bigthink.com/robby-berman/china-has-just-launched-the-worlds-first-quantum-satellite)
+* [Quantum Prime Minister](https://www.youtube.com/watch?v=rRmv4uD2RQ4)   
 
 * [Many lives in many worlds](http://space.mit.edu/home/tegmark/PDF/everett2.pdf)  
 
