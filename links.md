@@ -72,3 +72,4 @@
 
 * [Lessons from Mayan Astronomy - Avi Loeb](https://arxiv.org/abs/1608.01731v1)The Mayan culture collected exquisite astronomical data for over a millennium. However, it failed to come up with the breakthrough ideas of modern astronomy because the data was analyzed within a mythological culture of astrology that rested upon false but mathematically sophisticated theories about the Universe. Have we learned the necessary lessons to prevent our current scientific culture from resembling Mayan Astronomy? Clearly, data collection by itself is not a guarantee for good science as commonly assumed by funding agencies. A vibrant scientific culture should cultivate multiple approaches to analyzing existing data and to collecting new data.
 
+* [Pax y UNiverso (gracioso)](https://twitter.com/ContraGodarria/status/769639833962684417)
