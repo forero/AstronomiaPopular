@@ -7,3 +7,5 @@
 * [Cosmismo Ruso](https://www.youtube.com/watch?v=iO5MFXG-CSY&feature=youtu.be&t=9m30s)
 * [Aluna](https://www.youtube.com/watch?v=O5w0Ygn9wkc)
 * [Metafisica Aghori](https://www.youtube.com/watch?v=WFzP7l__Qy4&t=2m0s)  
+* [John Cleese - Scientist](https://www.youtube.com/watch?v=-M-vnmejwXo)  
+* [Laniakea](https://www.youtube.com/watch?v=rENyyRwxpHo)  
