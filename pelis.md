@@ -20,7 +20,6 @@ Contacto El viaje (4min) https://www.youtube.com/watch?v=scBY3cVyeyA
 
 
 
-Interstellar wormhole (4min) https://www.youtube.com/watch?v=QLOH7nhCZOo
 Interstellar entrada al agujero negro (4min) https://www.youtube.com/watch?v=6VPEtUgNJj4
 
 Ciencia de The Martian (con CC, 2min) https://www.youtube.com/watch?v=KCxQ3hYHrZk
