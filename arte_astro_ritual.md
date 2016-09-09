@@ -15,3 +15,5 @@
 * [Anthropocene - Starting Point](http://www.nature.com/news/anthropocene-the-human-age-1.17085)  
 
 * [Pannikar - One Way](https://www.youtube.com/watch?v=O383LOPbALs&t=42m58s)  
+
+* [Francisco Varela - Color Multiverse](https://www.youtube.com/watch?v=Womauwdyjl8&t=12m51s)  
