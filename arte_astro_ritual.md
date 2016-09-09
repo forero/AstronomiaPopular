@@ -11,3 +11,5 @@
 * [Tetramorfos](http://www.arquivoltas.com/8-palencia/02-CarrionSantiago03.htm)
 
 * [Land Expulsions](https://www.theguardian.com/global-development/poverty-matters/2013/may/29/migration-expulsion-foreign-land-deals)  
+
+* [Anthropocene - Starting Point](http://www.nature.com/news/anthropocene-the-human-age-1.17085)  
