@@ -19,3 +19,5 @@
 * [Francisco Varela - Color Multiverse](https://www.youtube.com/watch?v=Womauwdyjl8&t=12m51s)  
 
 * [Cage - Huston - Prygogine ; Reality](https://www.youtube.com/watch?v=y4AnTsB-OsQ&feature=youtu.be&t=2m50s) 
+
+* [Whitehead and air guitar playing](http://www.jesusjazzbuddhism.org/why-do-we-play-air-guitar-in-the-beginning-is-the-twitching.html)  
