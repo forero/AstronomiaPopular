@@ -58,7 +58,6 @@
 
 * [Identification of a Gravitational Arrow of Time](https://physics.aps.org/featured-article-pdf/10.1103/PhysRevLett.113.181101)  
 
-* [I am the center of the Universe](http://s.mlkshk-cdn.com/r/1A4CG)
 
 * [This Physics Pioneer Walked Away from It All Why Fotini Markopoulou traded quantum gravity for industrial design.](http://nautil.us/issue/38/noise/this-physics-pioneer-walked-away-from-it-all)
 
@@ -77,3 +76,7 @@
 
 
 * [Pax y UNiverso (gracioso)](https://twitter.com/ContraGodarria/status/769639833962684417)
+
+
+* [Comic I am the center of the Universe](http://s.mlkshk-cdn.com/r/1A4CG)
+
