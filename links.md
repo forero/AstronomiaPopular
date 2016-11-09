@@ -80,3 +80,6 @@
 
 * [Comic I am the center of the Universe](http://s.mlkshk-cdn.com/r/1A4CG)
 
+* [PENTAGON VIDEO WARNS OF “UNAVOIDABLE” DYSTOPIAN FUTURE FOR WORLD’S BIGGEST CITIES](https://theintercept.com/2016/10/13/pentagon-video-warns-of-unavoidable-dystopian-future-for-worlds-biggest-cities/)
+
+* [THE CRITICAL ENGINEERING MANIFESTO](https://criticalengineering.org/)
