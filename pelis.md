@@ -3,6 +3,8 @@
 * Zizek - Ideology The Pervert's Guide to Ideology - https://www.youtube.com/watch?v=5Ch5ZCGi0PQ
 * Zizek - Ideology The Pervert's Guide to Ideology- Subtitulos https://www.youtube.com/watch?v=CMRM_bfCBig
 
+* Llegó el momento de escoger Universidad https://www.youtube.com/watch?v=7Trw1ztcsoc
+
 Le voyage dans la lune 1902 (2min) https://www.youtube.com/watch?v=_FrdVdKlxUk
 
 Frau im Mond 1929 (5min) https://www.youtube.com/watch?v=uQlwhG76P9A
