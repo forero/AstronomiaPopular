@@ -20,7 +20,7 @@ Contacto: (5min) reciben el mensaje https://www.youtube.com/watch?v=8qDjg8mdd8c
 Contacto cuenta regresiva (5min) https://www.youtube.com/watch?v=MG0PEozw5kk
 Contacto El viaje (4min) https://www.youtube.com/watch?v=scBY3cVyeyA
 
-
+Hard to be a God (2min trailer) https://www.youtube.com/watch?v=11sMDQIgggA
 
 Interstellar entrada al agujero negro (4min) https://www.youtube.com/watch?v=6VPEtUgNJj4
 
@@ -43,7 +43,7 @@ Melancholia ending (3min) https://www.youtube.com/watch?v=fcZWZhUozr4
 jordowsky convicning people https://www.youtube.com/watch?v=HYgY_kLJY54
 
 
-La Belle Verte (15min) https://vimeo.com/67868544 
+La Belle Verte (15min) https://vimeo.com/29791036
 primeros 15 min hasta el viaje
 22min la comunicacion
 58min con los amigos de autralia
