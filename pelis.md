@@ -1,6 +1,7 @@
 * [Seven Soviet sci-fi films everyone should see](https://www.theguardian.com/world/2015/apr/28/cinema-seven-soviet-sci-fi-films)
 
 * Zizek - Ideology The Pervert's Guide to Ideology - https://www.youtube.com/watch?v=5Ch5ZCGi0PQ
+* Zizek - Ideology The Pervert's Guide to Ideology- Subtitulos https://www.youtube.com/watch?v=CMRM_bfCBig
 
 Le voyage dans la lune 1902 (2min) https://www.youtube.com/watch?v=_FrdVdKlxUk
 
